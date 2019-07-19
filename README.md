@@ -1,2 +1,2 @@
-# Hello-world
-Trial&amp;error
+Korey David Hoskins
+Project Helping Hands Global
